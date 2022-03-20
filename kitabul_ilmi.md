@@ -61,9 +61,9 @@ Sebuah ke bid'ahan adalah memberikan pahala kepada Rasulullaah. Padahal, Rasulul
 
 ## 3️⃣ **Membela agama Allah**
 
-- Meniatkan membela syari'at Allah
+- Memiliki niat membela syari'at Allah
 - Tidak ada yang membela syari'at Allah melainkan orang yang berpegang kepada syari'at al-Qur'an dan as-Sunnah
-- ketika pelaku bid'ah berbicara di depan seorang yang berilmu maka seseorang yang mengetahui ilmu akan membantahnya dan akan menepis segala ucapan atau pendapat pelaku bid'ah dengan al-Qur'an dan as-Sunnah
+- Ketika pelaku bid'ah berbicara di depan seorang yang berilmu maka seseorang yang mengetahui ilmu akan membantahnya dan akan menepis segala ucapan atau pendapat pelaku bid'ah dengan al-Qur'an dan as-Sunnah
 - Setiap penuntut ilmu, meniatkan untuk membela syari'at Allah
 - Kebid'ahan terus diperbaharui
 
