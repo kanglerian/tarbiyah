@@ -96,7 +96,7 @@ Maka masalah ini ada udzur terjadi permasalahan di dalamnya. Dan kita tidak bole
 5. Jangan jadi sebab permusuhan dan perselisihan dalam perkara ini
 6. Kami mencintai dan mengajak para pemuda untuk menggandengkan permasalahan dengan dalil. Sehingga ilmu akan terbuka
 
-> Sesungguhnya orang yang bercerai berai .... QS
+> Sesungguhnya orang yang bercerai berai adalah QS
 
 7. Wajib seorang penuntut ilmu bersaudara meskipun terjadi perselisihan diantara mereka dalam masalah Fiqhiyah.
 
