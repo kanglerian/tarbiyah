@@ -44,7 +44,7 @@ Asal dari manusia itu adalah Jahil (bodoh).
 
 * Hanya para Ulama yang memiliki rasa takut kepada Allah
 
-#### ➡️ **Memberi Ilmu disetiap keadaan**
+### ➡️ **Memberi Ilmu disetiap keadaan**
 
 Kita memberikan ilmu di setiap keadaan, tidak perlu hanya duduk di masjid. Seorang pengajar ilmu akan mendapatkan pahala dari orang yang dia ajarkan, dan terus menerus akan mendapatkan pahala dari yang pertama murid yang dia ajarkan.
 
@@ -54,7 +54,7 @@ Dari ‘Abdullah bin ‘Amr, Rasulullah shallallahu ‘alaihi wa sallam bersabda
 
 "Sampaikanlah dariku walau hanya satu ayat." (HR. Bukhari no. 3461).
 
-#### ➡️ **Bid'ah adalah memberikan pahala kepada Rasul**
+### ➡️ **Bid'ah adalah memberikan pahala kepada Rasul**
 
 Sebuah ke bid'ahan adalah memberikan pahala kepada Rasulullaah. Padahal, Rasulullaah adalah yang paling awal mengajarkan Ilmu. Ini tidak perlu dilakukan, karena sudah tentu pahalanya akan mengalir keapda Rasulullaah.
 
