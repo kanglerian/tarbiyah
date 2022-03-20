@@ -5,16 +5,15 @@ Dikatakan dalam Kitabul 'Ilmi karya Syaikh Utsaimin rahimahullaah, diantara adab
 
 ## 1️⃣ **Mengikhlaskan niat**
 
-### 🔴 **Tujuan**
 Mengharapkan wajah Allah dan negeri akhirat.
 
-**Dalil al-Qur'an**
+### ➡️ **Dalil al-Qur'an**
 
 فَاعْلَمْ اَنَّهٗ لَآ اِلٰهَ اِلَّا اللّٰهُ وَاسْتَغْفِرْ لِذَنْۢبِكَ وَلِلْمُؤْمِنِيْنَ وَالْمُؤْمِنٰتِۚ وَاللّٰهُ يَعْلَمُ مُتَقَلَّبَكُمْ وَمَثْوٰىكُمْ ࣖ - ١٩
 
 "Maka ketahuilah, bahwa tidak ada tuhan (yang patut disembah) selain Allah dan mohonlah ampunan atas dosamu dan atas (dosa) orang-orang mukmin, laki-laki dan perempuan. Dan Allah mengetahui tempat usaha dan tempat tinggalmu." (QS. Muhammad: 19)
 
-#### ➡️ **Tujuan yang salah**
+### ➡️ **Tujuan yang salah**
 Diantara tujuan yang salah adalah hanya mempelajari ilmu untuk kedudukan, hanya untuk mendapatkan Ijazah dan rekomendasi. Ini adalah tujuan yang tercela. Namun jika mengajarkan ilmu harus dengan Ijazah maka ini adalah niat yang benar karena didasari sebuah tuntutan.
 
 Dari Abu Hurairah, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
