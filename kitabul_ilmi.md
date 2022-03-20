@@ -11,7 +11,7 @@ Mengharapkan wajah Allah dan negeri akhirat.
 
 فَاعْلَمْ اَنَّهٗ لَآ اِلٰهَ اِلَّا اللّٰهُ وَاسْتَغْفِرْ لِذَنْۢبِكَ وَلِلْمُؤْمِنِيْنَ وَالْمُؤْمِنٰتِۚ وَاللّٰهُ يَعْلَمُ مُتَقَلَّبَكُمْ وَمَثْوٰىكُمْ ࣖ - ١٩
 
-"Maka ketahuilah, bahwa tidak ada tuhan (yang patut disembah) selain Allah dan mohonlah ampunan atas dosamu dan atas (dosa) orang-orang mukmin, laki-laki dan perempuan. Dan Allah mengetahui tempat usaha dan tempat tinggalmu." (QS. Muhammad: 19)
+> _"Maka ketahuilah, bahwa tidak ada tuhan (yang patut disembah) selain Allah dan mohonlah ampunan atas dosamu dan atas (dosa) orang-orang mukmin, laki-laki dan perempuan. Dan Allah mengetahui tempat usaha dan tempat tinggalmu." (QS. Muhammad: 19)_
 
 ### ➡️ **Tujuan yang salah**
 Diantara tujuan yang salah adalah hanya mempelajari ilmu untuk kedudukan, hanya untuk mendapatkan Ijazah dan rekomendasi. Ini adalah tujuan yang tercela. Namun jika mengajarkan ilmu harus dengan Ijazah maka ini adalah niat yang benar karena didasari sebuah tuntutan.
@@ -20,7 +20,7 @@ Dari Abu Hurairah, Rasulullah shallallahu ‘alaihi wa sallam bersabda,
 
 مَنْ تَعَلَّمَ عِلْمًا مِمَّا يُبْتَغَى بِهِ وَجْهُ اللَّهِ عَزَّ وَجَلَّ لاَ يَتَعَلَّمُهُ إِلاَّ لِيُصِيبَ بِهِ عَرَضًا مِنَ الدُّنْيَا لَمْ يَجِدْ عَرْفَ الْجَنَّةِ يَوْمَ الْقِيَامَةِ
 
-“Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” (HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani mengatakan bahwa hadits ini shahih).
+> _“Barangsiapa yang mempelajari suatu ilmu (belajar agama) yang seharusnya diharap adalah wajah Allah, tetapi ia mempelajarinya hanyalah untuk mencari harta benda dunia, maka dia tidak akan mendapatkan wangi surga di hari kiamat.” (HR. Abu Daud no. 3664, Ibnu Majah no. 252 dan Ahmad 2: 338. Syaikh Al Albani mengatakan bahwa hadits ini shahih)._
 
 ## 2️⃣ **Mengangkat kebodohan dari diri sendiri dan orang lain**
 
@@ -30,7 +30,7 @@ Asal dari manusia itu adalah Jahil (bodoh).
 
 وَاللّٰهُ اَخْرَجَكُمْ مِّنْۢ بُطُوْنِ اُمَّهٰتِكُمْ لَا تَعْلَمُوْنَ شَيْـًٔاۙ وَّجَعَلَ لَكُمُ السَّمْعَ وَالْاَبْصَارَ وَالْاَفْـِٕدَةَ ۙ لَعَلَّكُمْ تَشْكُرُوْنَ - ٧٨
 
-"Dan Allah mengeluarkan kamu dari perut ibumu dalam keadaan tidak mengetahui sesuatu pun, dan Dia memberimu pendengaran, penglihatan, dan hati nurani, agar kamu bersyukur." (QS. An-Nahl: 78)
+> _"Dan Allah mengeluarkan kamu dari perut ibumu dalam keadaan tidak mengetahui sesuatu pun, dan Dia memberimu pendengaran, penglihatan, dan hati nurani, agar kamu bersyukur." (QS. An-Nahl: 78)_
 
 * Dikeluarkan dari perut ibu
 * Tidak mengetahui 1 ilmu pun
@@ -40,7 +40,7 @@ Asal dari manusia itu adalah Jahil (bodoh).
 
 وَمِنَ النَّاسِ وَالدَّوَاۤبِّ وَالْاَنْعَامِ مُخْتَلِفٌ اَلْوَانُهٗ كَذٰلِكَۗ اِنَّمَا يَخْشَى اللّٰهَ مِنْ عِبَادِهِ الْعُلَمٰۤؤُاۗ اِنَّ اللّٰهَ عَزِيْزٌ غَفُوْرٌ - ٢٨
 
-"Dan demikian (pula) di antara manusia, makhluk bergerak yang bernyawa dan hewan-hewan ternak ada yang bermacam-macam warnanya (dan jenisnya). Di antara hamba-hamba Allah yang takut kepada-Nya, hanyalah para ulama. Sungguh, Allah Mahaperkasa, Maha Pengampun." (QS. Fathir: 28)
+> _"Dan demikian (pula) di antara manusia, makhluk bergerak yang bernyawa dan hewan-hewan ternak ada yang bermacam-macam warnanya (dan jenisnya). Di antara hamba-hamba Allah yang takut kepada-Nya, hanyalah para ulama. Sungguh, Allah Mahaperkasa, Maha Pengampun." (QS. Fathir: 28)_
 
 * Hanya para Ulama yang memiliki rasa takut kepada Allah
 
@@ -52,7 +52,7 @@ Dari ‘Abdullah bin ‘Amr, Rasulullah shallallahu ‘alaihi wa sallam bersabda
 
 بَلِّغُوا عَنِّى وَلَوْ آيَةً
 
-"Sampaikanlah dariku walau hanya satu ayat." (HR. Bukhari no. 3461).
+> _"Sampaikanlah dariku walau hanya satu ayat." (HR. Bukhari no. 3461)._
 
 ### ➡️ **Bid'ah adalah memberikan pahala kepada Rasul**
 
