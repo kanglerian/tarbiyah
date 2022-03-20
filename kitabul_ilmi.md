@@ -108,4 +108,4 @@ Maka masalah ini ada udzur terjadi permasalahan di dalamnya. Dan kita tidak bole
 - Ketika kaum muslimin pecah maka musuh akan senang
 
 8. Setiap kita harus mencari kebenaran di atas dalil
-9. Setiap keadaan ada hukum tertentu
+9. Setiap keadaan memiliki hukum tertentu
