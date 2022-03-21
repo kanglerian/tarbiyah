@@ -1,3 +1,3 @@
-# Catatan Kuliah Tarbiyah Sunnah Learning
+# Note App Web App
 ---
 ## Tujuan
