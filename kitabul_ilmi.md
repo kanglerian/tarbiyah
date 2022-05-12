@@ -108,3 +108,19 @@ Maka masalah ini ada udzur terjadi permasalahan di dalamnya. Dan kita tidak bole
 
 8. Setiap kita harus mencari kebenaran di atas dalil
 9. Setiap keadaan memiliki hukum tertentu
+
+# **Hal-hal yang harus dihindari**
+
+## 1. Hasad
+
+Hasad adalah seseorang membenci apa yang Allah berikan nikmat kepada seorang hamba. Bukan hanya mengharapkan agar nikmat itu Allah hilangkan, bahkan dia membenci nikmat itu untuk selain dia. Dan sifat hasad `tidak ada satu jiwapun yang selamat daripadanya`
+
+"Dan janganlah kamu iri hati terhadap apa yang dikaruniakan Allah kepada sebahagian kamu lebih banyak dari sebahagian yang lain. (karena) bagi orang laki-laki ada bahagian dari pada apa yang mereka usahakan, dan bagi Para wanita (pun) ada bahagian dari apa yang mereka usahakan, dan mohonlah kepada Allah sebagian dari karunia-Nya. Sesungguhnya Allah Maha mengetahui segala sesuatu."(QS. an Nisa’: 32)
+
+## Akibat Hasad
+
+1. Membenci hukum Allah yang telah ditetapkan
+2. Hasad akan menghapus kebaikan-kebaikan yang dilakukan sebagaimana api yang melahap kayu bakar. Contohnya: menyebutkan kejelekan orang yang dia dengki, menjauhkan orang-orang dari padanya dan merendahkan orang tersebut
+3. Merasa dia mendapatkan kerugian, kesempitan dan kesedihan
+4. Hasad menyerupai orang Yahudi
+5. Kedengkian tidak akan mengangkat nikmat Allah kepada orang yang dia dengki
