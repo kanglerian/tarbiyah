@@ -117,10 +117,17 @@ Hasad adalah seseorang membenci apa yang Allah berikan nikmat kepada seorang ham
 
 "Dan janganlah kamu iri hati terhadap apa yang dikaruniakan Allah kepada sebahagian kamu lebih banyak dari sebahagian yang lain. (karena) bagi orang laki-laki ada bahagian dari pada apa yang mereka usahakan, dan bagi Para wanita (pun) ada bahagian dari apa yang mereka usahakan, dan mohonlah kepada Allah sebagian dari karunia-Nya. Sesungguhnya Allah Maha mengetahui segala sesuatu."(QS. an Nisa’: 32)
 
-## Akibat Hasad
+## Kejelekan Hasad
 
 1. Membenci hukum Allah yang telah ditetapkan
 2. Hasad akan menghapus kebaikan-kebaikan yang dilakukan sebagaimana api yang melahap kayu bakar. Contohnya: menyebutkan kejelekan orang yang dia dengki, menjauhkan orang-orang dari padanya dan merendahkan orang tersebut
 3. Merasa dia mendapatkan kerugian, kesempitan dan kesedihan
 4. Hasad menyerupai orang Yahudi
 5. Kedengkian tidak akan mengangkat nikmat Allah kepada orang yang dia dengki
+6. Menafikan kesempurnaan Islam. Tidaklah seorang hamba beriman sampai dia mencintai orang lain seperti mencintai dirinya sendiri.
+7. Menggiring seorang hamba untuk tidak meminta kepada Allah
+8. Menggiring untuk menolak dan mengkufuri nikmat Allah
+9. Hasad adalah akhlak yang tercela, karena dia akan terus membuntuti nikmat Allah atas orang lain
+10. Orang yang dihasadi akan mengambil kebaikannya. Jika kebaikannya sudah habis, maka kejelekan akan dibebankan kepada dia dan akan dimasukan ke dalam neraka.
+
+Hasad adalah akhlak yang tercela diantaranya terjadi kepada para ulama, penuntut ilmu, pedagang dan juga yang lainnya. Maka setiap orang yang berlomba dalam suatu kenikmatan maka akan saling menghasadi. Janganlah membenci, tapi berusahalah seperti seseorang tersebut dan berdo'a kepada Allah agar mendapatkan nikmat yang serupa
